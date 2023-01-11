@@ -29,6 +29,8 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
     - 2023 o Brasil não vai crescer, mas a area de tecnologia vai crescer muito
 - Seja vunerável
     - Mostre que você quer transformar as outras pessoas em astros
+    - Não tenha receio de mostrar duas vunerabilidade para as pessoas
+    - Todo ser humano tem problema
 - A nossa misão é incentivar e mostrar para as pessoas que sempre existe um caminho
 
     
