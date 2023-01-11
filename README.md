@@ -23,6 +23,14 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
     - Nunca repita na respota a pergunta
     - Pergunta: Está quente hoje né. Resposta: Está (cara sem graça)
     - Pergunra: Está quente hoje né. Resposta: Estou suando que parece uma bica (cara legal)
+- Todo mundo compra de pessoas carismática
+- Jamais seja negativo
+    - 2023 o Brasil não vai crescer
+    - 2023 o Brasil não vai crescer, mas a area de tecnologia vai crescer muito
+- Seja vunerável
+    - Mostre que você quer transformar as outras pessoas em astros
+- A nossa misão é incentivar e mostrar para as pessoas que sempre existe um caminho
+
     
 
     
