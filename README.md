@@ -32,13 +32,23 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
     - Todo ser humano tem problema
 - A nossa misão é incentivar e mostrar para as pessoas que sempre existe um caminho
 
-## [Como ser autêntico em vendas](https://www.youtube.com/watch?v=t7DExvronuY)
+## [35 maneiras de vender um produto que não é inovador](https://www.youtube.com/watch?v=qZzO3bRHEBo)
 
 - Vender oque o cliente realmente precisa 0:00
 - Atrair pela emoção e fechar pela razão 6:22
 - Eduque o cliente, ouça mais e fale menos 9:43
 - Ajude seu cliente a vender para o resto da empresa ou outros decisores 12:52
 - Oferecer valor e informação em toda e qualquer interação com clientes ou possíveis clientes 15:46
+
+## [Como se diferenciar da concorrência que vende o mesmo produto que você](https://www.youtube.com/watch?v=3O9W-8AjHrY)
+
+- Marketing & Embalagem
+- Fidelidade & Benefícios
+- Personalidade & Criar uma comunidade
+- Mix de produtos / Kit de Acessórios exclusivos (produção própria ou de terceiros)
+- Serviços (ensinar o cliente sobre o seu serviço)
+- Pós-venda (atendimento ao cliente, suporte técnico, facilidade de devolução/cancelamento)
+- Fotos & Vídeos diferenciados (do produto; testemunhais de clientes)
 
     
 
