@@ -60,4 +60,13 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
 - Pergunte ao cliente e faça o admitir se você é o melhor: "Eu sou o melhor?";
 - Utilize Provas sociais - outras pessoas e empresas que já compraram de você falando sobre seus resultados;
 
+## [Porque é tão difícil ganhar dinheiro](https://www.youtube.com/watch?v=WfoGz8qeCAo)
+
+- Hoje o dinheiro é livre, você pode investir nos EUA e comprar da China
+- Family Office é um escritório de familia rica que só fica analisando onde eles devem investir
+- Se não tiver um proposta, ou um plano para vender você não vao conseguir vender
+- Prova para mim e me convença a comprar eu produto
+- Tem que valer do restorno de investimento e não preço
+- Era da justificativa, se não souber justificar não vende
+
     
