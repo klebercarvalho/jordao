@@ -50,6 +50,14 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
 - Pós-venda (atendimento ao cliente, suporte técnico, facilidade de devolução/cancelamento)
 - Fotos & Vídeos diferenciados (do produto; testemunhais de clientes)
 
-    
+## [Como vender um produto caro](https://www.youtube.com/watch?v=LMAmKiCLcxw)
+
+- Prepare seu cliente para vender seu produto para seus influenciadores (vídeos, textos, argumentos...);
+- Tire o cifrão (R$) dos seus materiais;
+- Crie uma opção ainda mais cara - com vários bônus, benefícios e features;
+- Use storytelling, histórias vendem, aprenda a contar histórias;
+- Tenha uma aparência (roupas, ambiente, carro...) e proporcione uma "experiência Ferrari" ao seu cliente;
+- Pergunte ao cliente e faça o admitir se você é o melhor: "Eu sou o melhor?";
+- Utilize Provas sociais - outras pessoas e empresas que já compraram de você falando sobre seus resultados;
 
     
