@@ -69,4 +69,11 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
 - Tem que valer do retorno de investimento e não preço
 - Era da justificativa, se não souber justificar não vende
 
+## [15 biografias que você tem que ler](https://www.youtube.com/watch?v=BlkTP4YEu4E)
+
+- Steve Jobs
+- Leonardo da Vinci
+- Fazer acontecer do Julio Ribeito
+- Sam Wa
+
     
