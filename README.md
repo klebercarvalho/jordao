@@ -66,7 +66,7 @@ Ricardo Jordao - Vendas, Marketing, Comportamento, Habito
 - Family Office é um escritório de familia rica que só fica analisando onde eles devem investir
 - Se não tiver um proposta, ou um plano para vender você não vao conseguir vender
 - Prova para mim e me convença a comprar eu produto
-- Tem que valer do restorno de investimento e não preço
+- Tem que valer do retorno de investimento e não preço
 - Era da justificativa, se não souber justificar não vende
 
     
